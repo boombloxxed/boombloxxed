@@ -16,6 +16,7 @@
   ‎ ‎ ‎ ‎ ‎" *𝙻-𝙾-𝚅-𝙴, 𝙻-𝙾-𝚅-𝙴 " 
   
   <sup>(𝚕𝚘𝚟𝚎, 𝚕𝚘𝚟𝚎 <𝟹 <𝟹)</sup>*
+ 
   ic/: EmeraldKitty_ .⟡
 ***
  ‎  ‎  ![♡](https://predisasters.neocities.org/LIGHTSOUT.gif)
