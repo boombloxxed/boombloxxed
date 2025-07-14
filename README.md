@@ -19,9 +19,9 @@
 ***
  ‎  ‎  ![♡](https://predisasters.neocities.org/SOYQUIXOTEDONQUIXOTE.png)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Arita+BuriM&weight=100&size=19&duration=1500&pause=100&color=F72B1FD2&center=true&vCenter=true&multiline=true&width=500&height=185&lines=Here+we+go+another+lap%2C+prizes+to+claim!;Here's+a+dream+for+you%2C+Here's+a+dream+for+me!;+Golden+tickets+in+my+bag+stay+unchanged%2C;Don't.+you.+love.+the.++thrill.+of.+the.+chase%3F)](https://git.io/typing-svg)
+ <div align="center">
 
-<div align="center">
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Arita+BuriM&weight=100&size=19&duration=1500&pause=100&color=F72B1FD2&center=true&vCenter=true&multiline=true&width=500&height=185&lines=Here+we+go+another+lap%2C+prizes+to+claim!;Here's+a+dream+for+you%2C+Here's+a+dream+for+me!;+Golden+tickets+in+my+bag+stay+unchanged%2C;Don't.+you.+love.+the.++thrill.+of.+the.+chase%3F)](https://git.io/typing-svg)
 	
 ***‎@boombl****oxxed*//!~*In*do~! + Pep!! ✨
 
@@ -34,7 +34,7 @@ I go by Indo primarily, I dont mind other names though.
 ‎‎I'm very shy, please Whisper me if you want to talk to me!!
 
 *˗ˏˋ **♡** ˎˊ˗*
-<div align="center">
+<div></div>
 
 
 **BOUNDARIES**
